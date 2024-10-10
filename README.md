@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do vinicius319 😁
+## Bem-vindo(a) ao perfil do vinicius319 
 
  <div>
    <a href="https://github.com/vinicius319">
